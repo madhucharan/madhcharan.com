@@ -1,2 +1,2 @@
-# madhcharan.com
+# madhucharan.com
 My Personal Website
